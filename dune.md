@@ -1,2 +1,3 @@
 may thy knife chip and shatter
-"The spice must flow"
+the spice must flow
+fear is the mind killer
